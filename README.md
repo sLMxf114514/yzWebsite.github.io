@@ -1,2 +1,2 @@
-# yzWebsite.github.io
+# yzWebsite
 A Website by yz
