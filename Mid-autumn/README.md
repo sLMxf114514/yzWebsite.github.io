@@ -113,5 +113,8 @@ _________________
 
 除了自然原因外，人们选择一年中的“中秋”前后赏月还有历史原因，早期月亮祭祀选择在秋季进行，那时人们的注意力都集中到月亮上，能充分领略到平常习焉不察的月亮之美。而当时上层人士对月亮的认识开始趋于理性，不再是单纯的崇拜，就渐渐把圆月当成了一种美丽的自然景象进行欣赏。所谓的“良辰美景”心态，便是如此。从历代赏月诗歌中我们可以清晰地看到古代神话的痕迹，桂树、白兔、嫦娥是常见的意象，也证明了古代月亮神话对赏月风尚的浓厚影响。
 
-![](https://ts1.cn.mm.bing.net/th/id/R-C.8d1b6cd33b3dd6bc1f55102f0b2d4204?rik=mCFZKgjEHI8Nwg&riu=http%3a%2f%2fcontent.pic.tianqistatic.com%2fcontent%2fjierizixun%2fshouchaobao%2fimages%2f202109%2f21%2f0ba9964f8e2ad530.jpg&ehk=VtBVUK9N2iICgt3c93TOnEOfgl8yMWzGiFjFH1Hxf7M%3d&risl=&pid=ImgRaw&r=0)
+![](https://s21.ax1x.com/2024/12/21/pAObqIA.jpg)
+
+### 走月
+走月，是中秋节习俗之一。中秋节起源于上古时代，普及于汉代，定型于唐朝初年，盛行于宋朝以后。中秋夜有一大特色赏月活动叫“走月”。皎洁的月光下，人们三五结伴，或游街市，或泛舟湖上，谈笑风生。在赏月的同时，健身强体。
 
