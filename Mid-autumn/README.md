@@ -118,3 +118,6 @@ _________________
 ### 走月
 走月，是中秋节习俗之一。中秋节起源于上古时代，普及于汉代，定型于唐朝初年，盛行于宋朝以后。中秋夜有一大特色赏月活动叫“走月”。皎洁的月光下，人们三五结伴，或游街市，或泛舟湖上，谈笑风生。在赏月的同时，健身强体。
 
+> 欢笑洒满长街，满城笙歌不断。
+
+![](https://gimg0.baidu.com/search/src=https%3A%2F%2Famu-bj.cdn.bcebos.com%2Famu%2Fstatic%2Fbaike-swan-subject-components%2Ffbe2a86c-4c78-4c53-ab70-b051548ff7a9.png&refer=http%3A%2F%2Fwww.baidu.com&app=2027&size=f9999,10000&n=0&g=0n&er=404&q=75&fmt=auto?sec=1695479272693&t=10065aca4a9ac2e5f80392b4c99f5bf8)
